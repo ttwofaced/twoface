@@ -1,1 +1,1 @@
-<img src="[https://postimg.cc/SjPhYNKH]">
+<img src="https://postimg.cc/SjPhYNKH">
